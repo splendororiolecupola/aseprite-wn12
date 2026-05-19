@@ -1,4 +1,4 @@
-# 
+# ultimate Adobe Photoshop para PC scripts es el mejor Adobe Photoshop para PC scripts con corrección de color y simulación de humo. Seguro, confiable y optimizado para el máximo
 
 
 
